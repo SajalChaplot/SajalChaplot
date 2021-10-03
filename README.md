@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SajalChaplot
-- 👀 I’m interested in designing, photohraphy and travelling.
+- 👀 I’m interested in designing, photography and travelling.
 - 🌱 I’m currently learning about growing business through design experimentation.
 - 📫 How to reach me : sajalchaplot@gmail.com
 
